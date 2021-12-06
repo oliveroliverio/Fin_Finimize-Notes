@@ -1,6 +1,6 @@
 # 20211205_23:12 [How to trade the next big little crypto](https://subscriptions.finimize.com/content/Q29udGVudFBpZWNlOjM4NjY=/how-trade-next-big-little-crypto)
 
-## Strategy one: treat like
+## Strategy 1: Treat small coins like microcap stocks.
 
 
 
